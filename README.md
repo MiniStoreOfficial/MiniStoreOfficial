@@ -4,3 +4,5 @@ Compatible with : win 8 , win 8.1 , win 10 , win 11
 No virus or harmful application
 This project will be go public soon ! 
 
+
+Mini Store 2022
